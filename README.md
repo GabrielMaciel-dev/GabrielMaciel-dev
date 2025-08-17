@@ -4,4 +4,3 @@
 - 👯 I’m looking to collaborate on projects
 - 🤔 I’m looking for help with 
 - 📫 Contate-me : bielzz2004@gmail.com
-- 😄 Pronouns: ele
